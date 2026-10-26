@@ -1,5 +1,4 @@
 MD ZIAUR RAHMAN
-[Phone Number] | [Email Address] | [GitHub Profile URL]
 PROFESSIONAL SUMMARY
 Dedicated ICT and Solar Technology professional with hands-on training in Advanced ICT and Solar Energy Systems. Skilled in digital tools, system troubleshooting, and renewable energy setup.
 PERSONAL INFO
